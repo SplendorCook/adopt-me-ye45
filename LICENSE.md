@@ -1,4 +1,4 @@
-#  
+#  minecraft Script premium offers the most advanced minecraft Script, with god mode and auto-collect. Perfect for dominating any match.
 
 
 
